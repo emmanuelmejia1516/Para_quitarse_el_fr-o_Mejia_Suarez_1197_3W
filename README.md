@@ -1,4 +1,4 @@
-# Para_quitarse_el_fr-o_Mejia_Suarez_1197_3W
+# Para_quitarse_el_frio_Mejia_Suarez_1197_3W
 # Ejercicio 1
 # Ejecucion:
 # Ejercicio 2
